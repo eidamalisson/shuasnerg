@@ -1,0 +1,2 @@
+# shuasnerg
+eu amo estudar
